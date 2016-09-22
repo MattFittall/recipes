@@ -1,7 +1,7 @@
 #Ingredients
 - Chickpeas
 - Chilli
-- Tahini
+- Socks
 - Nice Stuff
 
 #Instructions
