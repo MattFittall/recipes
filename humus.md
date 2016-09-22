@@ -1,7 +1,7 @@
 #Ingredients
 - Chickpeas
 - Chilli
-- Tahini
+- foot cheese
 - Nice Stuff
 
 #Instructions
