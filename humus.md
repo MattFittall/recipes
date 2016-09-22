@@ -2,6 +2,7 @@
 - Chickpeas
 - Chilli
 - foot cheese
+- Socks
 - Nice Stuff
 
 #Instructions
